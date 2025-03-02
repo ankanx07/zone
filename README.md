@@ -19,4 +19,5 @@
 - 🖥 &nbsp; Adobe Xd | Illustrator | Photoshop | OpenShot
 
 
-⭐️ From (https://github.com/ankanx07)
+⭐️ From Ankan Halder 
+(https://github.com/ankanx07)
